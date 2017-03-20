@@ -1,0 +1,1 @@
+# mynamecori.github.io
